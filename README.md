@@ -1,1 +1,1 @@
-First Set for Observation Astronomy
+First Set for Observational Astronomy
